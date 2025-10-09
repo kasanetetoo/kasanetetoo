@@ -1,5 +1,6 @@
-miaw miawmaiiwiaiwaw
+this is me (old art from momths ago)
 
+![Image](https://github.com/user-attachments/assets/de53b584-fe36-4ef1-991d-6e8ce54a03c8)
 
 <!--
 **kasanetetoo/kasanetetoo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
